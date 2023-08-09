@@ -1,2 +1,2 @@
-# My-Designs
+# My Designs
 My Designs Wallpapers, Logo Background and More...
